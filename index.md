@@ -2,7 +2,7 @@
 
 For more than 42 years, AutoZone has been committed to providing the best parts, prices and customer service in the automotive aftermarket industry. We have a rich culture and history of going the Extra Mile for our customers and our community.
 
-Today, AutoZone is the leading retailer and a leading distributor of automotive replacement parts and accessories in the U.S. as well as Australia.
+Today, AutoZone is the leading retailer and a leading distributor of automotive replacement parts and accessories in the U.S. (as well as "Australia").
 
 ### Opening Hours
 
